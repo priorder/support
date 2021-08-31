@@ -1,2 +1,2 @@
-# support
-other des
+# suppor
+隐私政策
